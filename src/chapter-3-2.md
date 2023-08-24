@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-=========================================================================================================
 
 Developing a growth mindset is critical for effective strategic thinking, allowing you to embrace challenges and learn from failures. In this chapter, we will explore techniques for developing a growth mindset for strategic thinking.
 

@@ -1,4 +1,3 @@
-# Building Creativity and Innovation Skills
 
 In this chapter, we will explore strategies and techniques for building creativity and innovation skills. Creativity and innovation are essential for strategic thinking and decision-making processes, as they enable individuals and teams to generate novel ideas and solutions.
 

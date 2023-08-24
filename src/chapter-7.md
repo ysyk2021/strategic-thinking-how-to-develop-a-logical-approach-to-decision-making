@@ -1,5 +1,3 @@
-Chapter 6: Generating and Evaluating Alternatives
-=================================================
 
 In strategic thinking, generating and evaluating alternatives is a crucial step in decision-making. It involves identifying multiple options or solutions to a problem and then selecting the best one based on various criteria. This chapter discusses the role of generating and evaluating alternatives in strategic thinking, techniques for brainstorming and evaluating options, and building creativity and innovation skills.
 

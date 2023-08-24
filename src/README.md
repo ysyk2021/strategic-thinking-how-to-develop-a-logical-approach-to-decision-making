@@ -1,4 +1,4 @@
-# Introduction
+
 
 Welcome to the introductory chapter of "Strategic Thinking: How to Develop a Logical Approach to Decision-Making." In this book, we will explore the fascinating world of strategic thinking and delve into the various techniques and concepts that can help you make effective decisions.
 

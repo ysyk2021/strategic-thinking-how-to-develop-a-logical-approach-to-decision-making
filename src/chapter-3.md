@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Strategic Thinking
-=============================================================
 
 Developing a growth mindset is critical for effective strategic thinking, allowing you to embrace challenges and learn from failures. In this chapter, we will explore the importance of a growth mindset in strategic thinking, as well as techniques for developing a growth mindset and overcoming obstacles that can hinder effective strategic thinking.
 
@@ -34,5 +32,4 @@ Conclusion
 Developing a growth mindset is critical for effective strategic thinking and decision-making. Remember to embrace challenges, learn from failures, cultivate curiosity, collaborate with others, and overcome your fear of change to enhance your ability to think strategically.
 
 By developing a growth mindset and continually refining your approach to strategic thinking, you can maximize your effectiveness as a decision-maker and achieve your goals with confidence.
-
 

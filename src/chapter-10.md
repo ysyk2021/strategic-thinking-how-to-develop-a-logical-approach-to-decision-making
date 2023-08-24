@@ -1,5 +1,3 @@
-Conclusion
-===================
 
 The Ongoing Journey of Effective Strategic Thinking
 ---------------------------------------------------

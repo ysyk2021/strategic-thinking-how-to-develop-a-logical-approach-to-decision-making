@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is a critical component of strategic thinking, allowing you to identify your decision-making style, biases, and strengths. In this chapter, we will explore techniques for building self-awareness in relation to strategic thinking, as well as identifying your decision-making style, biases, and strengths, and building confidence and intuition.
 

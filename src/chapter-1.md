@@ -1,5 +1,3 @@
-Introduction
-============
 
 Strategic thinking is a critical skill for making effective decisions in both personal and professional settings. It involves the ability to analyze complex problems, identify potential solutions, and make informed decisions that align with long-term objectives. In this book, we will discuss strategies for developing a logical approach to decision-making through strategic thinking.
 

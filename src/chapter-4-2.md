@@ -1,4 +1,3 @@
-# Identifying Your Decision-Making Style, Biases, and Strengths
 
 In this chapter, we will explore the process of identifying your decision-making style, biases, and strengths. Understanding these aspects of yourself is crucial for strategic thinking as it allows you to leverage your strengths and mitigate the impact of biases on your decision-making process. By gaining clarity about your decision-making style, biases, and strengths, you can make more effective and objective strategic decisions.
 

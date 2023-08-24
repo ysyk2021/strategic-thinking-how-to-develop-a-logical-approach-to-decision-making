@@ -1,4 +1,3 @@
-# Types of Strategic Thinking and Their Impact on Decision-Making
 
 In this chapter, we will explore the different types of strategic thinking and their impact on decision-making. Understanding these types will enable you to develop a logical approach to making effective decisions in various situations.
 
