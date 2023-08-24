@@ -1,5 +1,4 @@
 
-
 Welcome to the introductory chapter of "Strategic Thinking: How to Develop a Logical Approach to Decision-Making." In this book, we will explore the fascinating world of strategic thinking and delve into the various techniques and concepts that can help you make effective decisions.
 
 Strategic thinking is a vital skill in both personal and professional contexts. It involves analyzing situations, considering alternative approaches, and making well-informed choices that align with your goals. By developing a logical approach to decision-making, you can navigate complex challenges and maximize your chances of success.
